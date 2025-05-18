@@ -1,1 +1,1 @@
-# qiqiqiqiqii.github.io
+ts is a wirey(tm) domain 🔥🔥🔥🔥
